@@ -1,0 +1,1 @@
+# Dizideki-Elemanlarin-Frekansi
